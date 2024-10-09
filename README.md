@@ -2,7 +2,7 @@
 - 👀 I’m interested in Soccer.
 - 🌱 I’m currently learning Arabic.
 - 💞️ I’m looking to collaborate on anything.
-- 📫 You can reach me through my email chaudriasad@gmail
+- 📫 You can reach me through my email chaudriasad1@gmail
 - ⚡ Fun fact: I like cats.
 
 <!---
