@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Asad-Chaudri
-- I love playing Soccer.
+- I love drawing and cats.
 - My best friend is failure.
 - My favourite teacher is pain.
 - Nothing feels better than playing football.
