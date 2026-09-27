@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Asad-Chaudri
 - I love cats.
 - My best friend is failure.
-- My favourite teacher is pain.
 - Nothing feels better than playing football.
 
 <!---
